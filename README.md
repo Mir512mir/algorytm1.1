@@ -1,0 +1,1 @@
+# algorytm1.1
